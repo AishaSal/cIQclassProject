@@ -9,3 +9,8 @@ working in data analytics to extract data and informations.
  
  <b>many thanks to my instructors Alexandra , and Christopher  
  also special thanks to former project coordinator Kiriaki.  <b>
+
+Many thanks!
+kind regards,
+
+Aisha 
